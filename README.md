@@ -21,6 +21,8 @@ I recently completed the intensive Yandex Practicum course, which included more 
 
 If you'd like to get in touch with me regarding career opportunities or collaborations, please feel free to reach out via:
 
+LinkedIn: [Ivan Shurgalin](www.linkedin.com/in/ishurgalin)
+
 Email: [crumble_sangria.0s@icloud.com](mailto:crumble_sangria.0s@icloud.com)
 
 Telegram: [Ivan Shurgalin](https://t.me/Ivshrgln)
